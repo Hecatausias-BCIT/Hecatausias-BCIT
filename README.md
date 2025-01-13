@@ -1,6 +1,7 @@
 ## Hi there 👋
 
 Pronouns: They/Them
+
 Fun fact: 6th gen Calgarian
 
 CST BCIT Student
